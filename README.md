@@ -5,3 +5,4 @@ es teh manis
 gula 1 sendok
 tremor
 k
+y ksa ka
