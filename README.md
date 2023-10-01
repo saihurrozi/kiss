@@ -1,6 +1,5 @@
 # kiss
 App KISS
 
-09
-sasa
-safa
+es teh manis
+gula 1 sendok
